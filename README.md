@@ -3,7 +3,7 @@
 
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.%20main" width="350" height="200" alt="this is me" alighn="left"> <a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=Cinzel&duration=5015&pause=1050&color=B0181899&background=37030300&center=true&width=435&lines=+%E2%80%9D++I+only+have+one+vital+instrument.++%E2%80%9D;+%E2%80%9D++And+I+will+never+stain+my+scissors++%E2%80%9D;+%E2%80%9D++with+blood+again.+++%E2%80%9D" alt="Typing SVG" /></a> 
 
-<img alt="Static Badge" src="https://img.shields.io/badge/babi's%20%E2%80%94%20%20%F0%9D%86%BB-19%2C173-8f2535"> <img alt="Static Badge" src="https://img.shields.io/badge/princess%20kit%20ᛝ-3d1f24"> ![](https://komarev.com/ghpvc/?username=aztralweb&color=ad1f2d&label=cleaners)
+<img alt="Static Badge" src="https://img.shields.io/badge/babi's%20%E2%80%94%20%20%F0%9D%86%BB-19%2C173-8f2535"> <img alt="Static Badge" src="https://img.shields.io/badge/princess%20kit%20ᛝ-3d1f24"> ![](https://komarev.com/ghpvc/?username=aztralweb&color=ad1f2d&label=unicornkitti)
 
 <sub> best viewed in pc </sub>　𝆹𝅥 
 
@@ -17,8 +17,8 @@
 
 | $${\color{#a88288}About \space \space me}$$   <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/pixels/pix3" width="25" height="20" alt="Description" align="justify"> | 
 | :---         |
-| <p align="left"> $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}—   \space \space \space \space}$$  $${\color{#701b1e}zee \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} riyo \space \space \space \space \space}$$ / $${\color{#ba9199} \space \space 18  \space  \space y/o\space}$$  |
-| <p align="left"> xe‎ ‎ ༝‎‎ ‎‎ t<ins>he</ins>y‎ ‎ ‎ ༝‎‎ ‎‎ ‎<a href="https://pronouns.cc/@astral.web/2">++</a> 　　<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/asexual" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/genderfluid" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroflux" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroacespec" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/nebularomantic" width="35" height="35" align=""> | 
+| <p align="left"> $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}—   \space \space \space \space}$$  $${\color{#701b1e}kit \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} kaitlyn \space \space \space \space \space}$$ / $${\color{#ba9199} \space \space 18  \space  \space y/o\space}$$  |
+| <p align="left"> she‎ ‎ ༝‎‎ ‎‎ t<ins>any</ins>y‎ ‎ ‎ ༝‎‎ ‎‎ ‎<a href="https://pronouns.cc/@astral.web/2">++</a> 　　<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/asexual" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/genderfluid" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroflux" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroacespec" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/nebularomantic" width="35" height="35" align=""> | 
   
 ----------------------------
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.wehavesome.misc" width="220" height="65" alt="Description" align="left">
@@ -41,17 +41,17 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 <details>
  <summary><b>dni</b></summary>
   
-   people whos beliefs align within the basic DNI criteria, ponytown skin copiers( without any sort of permission ) ANY disorder fakers / romanticizers, ex friends, toxic / problematic people as well as their supporters, endo "systems" && supporters ( i don't rlly bother  ya'll as long as you don't fester me ), proshippers / darkshippers.
+   people whos beliefs align within the basic DNI criteria, ponytown skin copiers( without any sort of permission ) ANY disorder fakers / romanticizers, ex friends, toxic / problematic people as well as their supporters, endo "systems" && supporters ( i don't rlly bother  ya'll as long as you don't fester me ), racist / homophobic / sexist etc.
 </details>
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
 
-$${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space by \space \space Mori Calliope}$$
+$${\color{#de2849}.playing    ݁˖\larp yard\space \space and\space \space equals\space \space by \space \space Mori Calliope}$$
 ———————————————————————
 —————————————————————————————————————————
 |<p align="left"> honorable mentions :|
 |:---:|
-|boogah . charlie . chomp . devy . jester . jun hie . kiyoshi|
-|kris . lomi . oblige . soup . sugar . quasar| 
+|trj .  . coco . clark . arthur . nelbeu . sean|
+|rowan . genny . jj . eveleen . bugbo . zay| 
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315oxri5hk2ic5s5soszj5caqcwm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=380a0a&interchange=false&profanity=false&hide_remaster=false&bar_color=ac3011&bar_color_cover=false">
